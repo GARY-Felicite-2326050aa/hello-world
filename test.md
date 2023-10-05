@@ -25,12 +25,3 @@ Corée du Sud : 8 octobre 2011 (Festival international du film de Busan) ; 3 nov
 France : 24 mai 2012 (Quinzaine des réalisateurs au Festival de Cannes)
 
  > -titre original:
-
- > -titre original:
-
- > -titre original:
-
-
-
-
- 
